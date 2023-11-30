@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @notchemist
+- 👀 I’m interested in scientific subject
+- 🌱 I'm currently studying civil engineering
